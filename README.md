@@ -6,7 +6,7 @@
       
 ⠀　⠀　　　　　⠀　　　　　⠀　　　　　　　　　　**did** system ▪ disabled
 
-⠀　⠀　　　　　⠀　　　　　⠀　　　　　　　　　　taken — __20__ — ![caedosexual](https://i.postimg.cc/3rgqq6n5/caedsexual-20px-5-stripes.png)![transmasc](https://i.postimg.cc/hG2Vg52w/transmasculine-7-stripes-20-px.png)
+⠀　⠀　　　　　⠀　　　　　⠀　　　　　　　　　　taken — __adult (18+)__ — ![caedosexual](https://i.postimg.cc/3rgqq6n5/caedsexual-20px-5-stripes.png)![transmasc](https://i.postimg.cc/hG2Vg52w/transmasculine-7-stripes-20-px.png)
 
 　　　　　　　　　　　　　　　　　　　　　　　~~⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣~~
       
